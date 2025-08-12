@@ -116,6 +116,6 @@ These insights can help in decision-making for:
 
 ## 📫 Contact
 
-For questions or collaborations, connect with me on [LinkedIn](linkedin.com/in/shankar-belavatagi-6602b023a)
+For questions or collaborations, connect with me on [LinkedIn](linkedin.com/in/babu-malikireddy-b5835337a)
 
 ---
